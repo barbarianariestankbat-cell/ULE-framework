@@ -80,4 +80,4 @@ Because creation should feel like discovery, not struggle.
 
 If it helps someone else find theirs, it’s already succeeded.”
 
-
+ULE is designed to help individuals discover and express their own artistic identity — not replicate someone else’s.
